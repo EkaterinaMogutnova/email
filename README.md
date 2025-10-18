@@ -1,0 +1,1 @@
+https://www.figma.com/design/oa5kr0nHUAVsrnazH9VxCL/Spim-—-2018-08-28-Flash-Sale-24--Copy-?node-id=0-1&p=f&t=MMZiUAqdEhKR9syy-0
